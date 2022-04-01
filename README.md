@@ -1,6 +1,3 @@
-# Tim Rickaby 
-
-<br />
 👋 Hello! I'm a designer and developer crafting brand identities, digital design, websites and short-form copy to deliver creative, technical and strategic solutions which are unique, meaningful and effective.
 <br /><br />
 As a designer I've worked agency-side with global brands and in-house with many wonderful SME’s, family businesses, charities and musicians. Right now I'm the design manager at leading wool and craft brand West Yorkshire Spinners and I create bespoke work for private clients through my small studio, Modocodo.
